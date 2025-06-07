@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Abdullo
 - 👀 I’m interested in space and astronomy, playing the piano
 - 🌱 I’m currently learning IT and English
-- 📫 How to reach me: @alikulovabdullo83@gmail.com or @null_css
+- 📫 How to reach me: alikulovabdullo83@gmail.com or https://t.me/null_css
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: Im learning astronomy from 2018, 3rd of May(its my b-day)
 
